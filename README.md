@@ -93,8 +93,6 @@ Developed by Peruri N S Maniswar 🚀
 
 
 ![Screenshot 2025-03-21 145409](https://github.com/user-attachments/assets/a71b0640-5f94-4142-904b-854f68b028f7)
-![Screenshot 2025-03-21 145409](https://github.com/user-attachments/assets/28ec8bcb-3977-40d0-a7e5-fc7dc5514c69)
-![Screenshot 2025-03-21 145409](https://github.com/user-attachments/assets/1e157347-6328-434d-b3a2-7f4debe48209)
 ![Screenshot 2025-03-21 145424](https://github.com/user-attachments/assets/30024c2f-ed1c-46b5-ae4e-af15eae35544)
 ![Screenshot 2025-03-21 145439](https://github.com/user-attachments/assets/e9bff963-d60d-4b39-8b1e-535eed557f5d)
 ![Screenshot 2025-03-21 145511](https://github.com/user-attachments/assets/39a2bc36-0f43-4c4f-838f-ddd962508ebd)
